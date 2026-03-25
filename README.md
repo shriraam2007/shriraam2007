@@ -1,7 +1,7 @@
 ## Hi there
 Hi, I'm Shriram Sharma 
 
-B.Tech Student | [CSE]  
+B.Tech Student [CSE]  
 VIT Bhopal University  
 1st Year  
 
